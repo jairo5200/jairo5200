@@ -2,7 +2,7 @@
 🔭 Disponible para nuevas oportunidades laborales.<br>
 🤝 me encanta colaborar y trabajar en equipo.<br>
 🌱 En constante aprendizaje e implementación de lo aprendido.<br>
-💬 Pregúntame si tienes alguna duda.<br>
+💬 Pregúntame si tienes alguna duda Celular:+57 321 571 9000.<br>
 
 
 ## 🌐 Socials:
