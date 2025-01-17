@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Buscando trabajo e iniciando mi emprendimiento.<br>
+🔭 Disponible para nuevas oportunidades laborales.<br>
 🤝 me encanta colaborar y trabajar en equipo.<br>
 🌱 En constante aprendizaje e implementación de lo aprendido.<br>
 💬 Pregúntame si tienes alguna duda.<br>
